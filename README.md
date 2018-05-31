@@ -1,4 +1,4 @@
 # Last_lineluxe
-Amidou Cisse, 
-Yann eyi Ndango
+Amidou Cisse;
+Yann eyi Ndango;
 Assétou Bamba
